@@ -1,1 +1,1 @@
-# Laby-Java-10
+<img width="1500" height="997" alt="58e368819d134e19ba1493e3f38ef35a" src="[https://github.com/user-attachments/assets/50b2154b-3dac-46ae-9466-4dfcc9467748](https://media1.tenor.com/m/YI78f7D2IRYAAAAd/%D0%B5%D0%B1%D0%BB%D0%BE-%D1%83%D1%82%D0%B8%D0%BD%D0%BE%D0%B5-%D1%80%D0%BE%D0%B1%D0%BB%D0%BE%D0%BA%D1%81.gif)" />
